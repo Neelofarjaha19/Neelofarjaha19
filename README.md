@@ -1,6 +1,6 @@
 # 💫 About Me:
 <br>I'm currently pursuing B.Tech Final year in Velagapudi Ramakrishna Siddhartha Engineering College.<br>Dedicated and curious Tech enthusiast with a background in Information Technology. <br>I'm eager to launch my career as a tech professional.<br>
-<br>Dedicated and curious Tech enthusiast with a background in Information Technology. I'm eager to launch my career as a tech professional. Seeking an entry-level role in a tech company that values continuous learning and fosters a culture of innovation where I can apply my problem-solving skills to contribute to exciting projects.<br>
+<br> Seeking an entry-level role in a tech company that values continuous learning and fosters a culture of innovation where I can apply my problem-solving skills to contribute to exciting projects.<br>
 
 
 ## 🌐 Socials:
